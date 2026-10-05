@@ -1,2 +1,2 @@
 # mouslim-et-bayili
-pour campus Faso, aidons nos petits frère
+pour campus Faso, aidons nos petits frères
